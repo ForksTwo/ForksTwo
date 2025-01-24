@@ -2,8 +2,14 @@
 
 Hey hey!!
 
-You can find me on the following marked plots on the pony town map:
-![image](https://github.com/user-attachments/assets/315ac0e8-965b-4dc8-b2b7-e004b8d3fe15|width=300)
+You can find me on the following marked plots on the Pony Town safe server map:
+![image](https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e)
+
+I mostly sit outside of the bakery with my friend, and in most cases you can see me in or somewhere surrounding the bush in this area. There's actually a reason for this and you should not do something sus out there with me around.
+Basically, the reason why I'm mostly somewhere near the bush is because we are here to collect chats from other players and copy/pasting them onto a Google doc that me and my friend made... hehe
+
+But yo, don't get us wrong, we're not moderators in disguise! We don't collect EVERY chat from players there everyday. If someone says something that is very inappropriate we copy and paste them and sometimes say it directly in chat to shame them. Sometimes we put that in our Google doc without putting the message in chat and say it to them the next time we see them.
+
 
 
 <!--
