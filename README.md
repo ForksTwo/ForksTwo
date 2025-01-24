@@ -39,11 +39,11 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 **First of all, depending on our moods we or we don't do this for fun**<br>
 **We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I've always felt better when I remember that there's so many people that still care for me**<br>
 
-**If you're just pissed by our quotes and think we're "spamming" then just block and hide us. It's not that hard and if we quoted you, it's your fault that you've said it.**
+**If you're just pissed by our quotes and think we're "spamming" then just block and hide us.**
 
 I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum 
 
-Sometimes we like to collect messages from people who are unaware that they're in the safe server. If they say it we repeat it. **BUT WE HAVE COMMON SENSE AND DO NOT RANDOMLY SAY SOMEONE'S MESSAGE.**
+Sometimes we like to collect messages from people who are unaware that they're in the safe server. If they say it we repeat it. **BUT WE HAVE COMMON SENSE AND DO NOT RANDOMLY SAY SOMEONE'S MESSAGE. GET THAT CLEAR AND DO NOT SPREAD MISINFORMATION ABOUT US.**
 
 If you're contained in this list or know someone in this list that you wanted to be removed then you can always contact me to remove it.
 
