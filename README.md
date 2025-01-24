@@ -10,11 +10,12 @@ You can find me on the following marked plots on the Pony Town safe server map:
 
 #### Regretevator area
 I mostly sit outside of the bakery with my friend @MrHappyNSad, and in most cases you can see me in or somewhere surrounding the bush in this area. 
-We're there because we're trying to give out a 'be careful what you say' look
+If he's offline then I just stay in the bush and vice versa
+We're there because we're trying to give out a 'be careful what you say' look and be the most feared players
 
 #### OSC area
-If you see me in the OSC area, you might not determine that it wouldn't be me, perhaps a funny creature who is the only existant of its species, Forkstoe
-(idk who forkstoe is so you might wanna ask it /srs)
+I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORKSTOE PERSON from the osc area stop asking :(
+But the reason why I marked it on the map and put a section here is because people think I do and I'm trying to fool them heh
 
 #### Docks
 I'm not usually there but I am there when I want a big crowd.
