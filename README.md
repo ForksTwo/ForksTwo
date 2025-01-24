@@ -2,7 +2,7 @@
 
 Hey hey!! I'm Erynn/June **(real names, use with caution)** but you can always call me what my name displays!
 
-Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that so just expect my whole github to just be pt related
+Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that so just expect my whole github to just be pt related until this fills up with _serious game development haha_
 
 Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you can always hang out with me and @MrHappyNSad :)
 
@@ -37,11 +37,11 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 ### Pony Town quotes Hall-of-Fame (My picks)
 **First of all, we don't do this for fun**<br>
-**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to shut up and kill myself many times on a PG server when I didn't do anything and I always felt better when I remember that I am liked by people**<br>
+**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I always felt better when I remember that I am liked by people**<br>
 
 If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or your parents whatever haha)
 
-(Don't be scared to contact me, I won't directly bring it up and make fun of whenever I see you again)
+(Don't be scared to contact me, I won't directly bring it up and make fun of whoever it was whenever I see you again)
 
 _Of course, we mean no harm here and you can always read the above_
 
