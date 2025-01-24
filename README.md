@@ -6,10 +6,11 @@ Unlike other most Pony Town players who use github for their accounts, I actuall
 
 ### Where to find me in Pony Town!!!! :D
   You can find me on the following marked plots on the Pony Town safe server map:
-<p align="left">
+<p align="center">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=30% height=30%>
 </p>
-<p align="right">
+Here are my socials!
+<p align="center">
   <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
 
