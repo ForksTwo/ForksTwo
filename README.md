@@ -11,6 +11,7 @@ Unlike other most Pony Town players who use github for their accounts, I actuall
 </p>
 <p align="center">
   Here are my socials!
+  
   <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
 
