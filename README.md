@@ -1,4 +1,5 @@
 ## Welcome to my GitHub!!
+### (if you visited because i quoted something in chat it is recommended that you read the end of the page)
 
 Hey hey!! I'm Erynn/June **(real names, use with caution)** but you can always call me what my name displays!
 
@@ -36,12 +37,13 @@ But the reason why I marked it on the map and put a section here is because peop
 I'm not usually there but I am there when I want a big crowd or somewhere to join in.
 
 ### Pony Town quotes Hall-of-Fame (My picks)
+#### MASSIVE WARNING FOR THE OVERTHINKERS
 **First of all, we don't do this for fun**<br>
-**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I always felt better when I remember that there's so many people that still care for me**<br>
+**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I've always felt better when I remember that there's so many people that still care for me**<br>
 
 **If you're just pissed by our quotes and think we're "spamming" then just block and hide us. It's not that hard and if we quoted you, it's your fault that you have to say it out loud in a PG-assumed space that is more demonic than the 18+ one.**
 
-I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much
+I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum so it won't do that much
 
 If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or your parents whatever haha)
 
