@@ -9,7 +9,7 @@ Unlike other most Pony Town players who use github for their accounts, I actuall
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=30% height=30%>
 </p>
-  Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons)
+  Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons AND OF COURSE I PHOTOSHOPPED FORKSTOE INTO THE SCREENSHOT BECAUSE PEOPLE BELIEVE I AM FORKSTOE)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
