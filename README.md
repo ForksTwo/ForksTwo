@@ -9,8 +9,9 @@ I mostly sit outside of the bakery with my friend, and in most cases you can see
 Basically, the reason why I'm mostly somewhere near the bush is because we are here to collect chats from other players and copy/pasting them onto a Google doc that me and my friend made... hehe
 
 But yo, don't get us wrong, we're not moderators in disguise! We don't collect EVERY chat from players there everyday. If someone says something that is very inappropriate we copy and paste them and sometimes say it directly in chat to shame them. Sometimes we put that in our Google doc without putting the message in chat and say it to them the next time we see them.
+We're here to teach players a lesson that this is the safe server... HAHAHAHA
 
-
+If you see me in the OSC area, you might not determine that it wouldn't be me, perhaps a funny creature who is the only existant of its species, Forkstoe
 
 <!--
 **ForksTwo/ForksTwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
