@@ -3,6 +3,8 @@
 Hey hey!!
 
 You can find me on the following marked plots on the pony town map:
+![image](https://github.com/user-attachments/assets/315ac0e8-965b-4dc8-b2b7-e004b8d3fe15)
+
 
 <!--
 **ForksTwo/ForksTwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
