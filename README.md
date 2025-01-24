@@ -5,8 +5,8 @@ Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call 
 Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that
 
 ### Where to find me in Pony Town!!!! :D
-<p align="left">
   You can find me on the following marked plots on the Pony Town safe server map:
+<p align="left">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
 </p>
 
