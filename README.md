@@ -4,7 +4,7 @@ Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call 
 
 Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that
 
-Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you can always hang out with me and my broski @MrHappyNSad
+Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you can always hang out with me and @MrHappyNSad :)
 
 ### Where to find me in Pony Town!!!! :D
   You can find me on the following marked plots on the Pony Town safe server map:
@@ -19,9 +19,11 @@ Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you 
 #### Regretevator area
 I mostly sit outside of the bakery with @MrHappyNSad, and in most cases you can see me in or somewhere surrounding the bush in this area. 
 
-If he's offline then I just stay in the bush and vice versa
+If he's offline then I just stay in the bush and vice versa but if he's online than I just sit near the bush heh
 
 We're there because we're trying to give out a 'be careful what you say' look and be the most feared players
+
+The reason why we're there is because it is highly populated which is a hotspot for us to collect chats from players that do some pretty sus things in the SAFE SERVER (but of course we don't only collect in that area)
 
 #### OSC area
 I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORKSTOE PERSON from the osc area stop asking :(
