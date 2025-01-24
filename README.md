@@ -1,8 +1,8 @@
-## Welcome to my github!!
+## Welcome to my GitHub!!
 
 Hey hey!!
 
-you can find me on the following marked plots on the pony town map:
+You can find me on the following marked plots on the pony town map:
 
 <!--
 **ForksTwo/ForksTwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
