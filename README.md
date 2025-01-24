@@ -17,7 +17,7 @@ Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you 
 </p>
 
 #### Outside the bakery (and inside too)
-I mostly sit outside of the bakery with and in most cases you can see me in or somewhere surrounding the bush in this area. 
+I mostly sit outside of the bakery and in most cases you can see me in or somewhere surrounding the bush in this area. 
 
 Sometimes we like to collect messages from other people who is unaware that they're in the safe server. If they say it we repeat it. **But we mean no harm in a bad way tho and you can read more in the quotes hall of fame**
 
@@ -37,7 +37,11 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 ### Pony Town quotes Hall-of-Fame (My picks)
 **First of all, we don't do this for fun**<br>
-**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I always felt better when I remember that I am liked by people**<br>
+**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I always felt better when I remember that there's so many people that still care for me**<br>
+
+**If you're just pissed by our quotes and think I'm "spamming" then just block and hide us. It's not that hard.**
+
+I know I'm sounding like some pt mod wannabe but this is what the game has always been
 
 If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or your parents whatever haha)
 
