@@ -10,7 +10,7 @@ Unlike other most Pony Town players who use github for their accounts, I actuall
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
 </p>
 <p align="right">
-  <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613" width=50% height=50%>
+  <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
 
 #### Regretevator area
