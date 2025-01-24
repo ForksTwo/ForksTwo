@@ -1,7 +1,8 @@
 ## Welcome to my GitHub!!
 
-Hey hey!!
+Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call me what my name displays!
 
+#### Where to find me in Pony Town!!!! :D
 You can find me on the following marked plots on the Pony Town safe server map:
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
