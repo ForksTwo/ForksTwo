@@ -2,6 +2,8 @@
 
 Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call me what my name displays!
 
+Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that
+
 ### Where to find me in Pony Town!!!! :D
 You can find me on the following marked plots on the Pony Town safe server map:
 <p align="center">
@@ -10,11 +12,14 @@ You can find me on the following marked plots on the Pony Town safe server map:
 
 #### Regretevator area
 I mostly sit outside of the bakery with my friend @MrHappyNSad, and in most cases you can see me in or somewhere surrounding the bush in this area. 
+
 If he's offline then I just stay in the bush and vice versa
+
 We're there because we're trying to give out a 'be careful what you say' look and be the most feared players
 
 #### OSC area
 I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORKSTOE PERSON from the osc area stop asking :(
+
 But the reason why I marked it on the map and put a section here is because people think I do and I'm trying to fool them heh
 
 #### Docks
