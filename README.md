@@ -2,15 +2,17 @@
 
 Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call me what my name displays!
 
-#### Where to find me in Pony Town!!!! :D
+### Where to find me in Pony Town!!!! :D
 You can find me on the following marked plots on the Pony Town safe server map:
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
 </p>
 
+#### Regretevator area
 I mostly sit outside of the bakery with my friend @MrHappyNSad, and in most cases you can see me in or somewhere surrounding the bush in this area. 
 We're there because we're trying to give out a 'be careful what you say' look
 
+#### OSC area
 If you see me in the OSC area, you might not determine that it wouldn't be me, perhaps a funny creature who is the only existant of its species, Forkstoe
 (idk who forkstoe is so you might wanna ask it /srs)
 
