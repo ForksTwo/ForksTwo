@@ -1,8 +1,8 @@
 ## Welcome to my GitHub!!
 
-Hey hey!! I'm Erynn/June (real names, use with caution) but you can always call me what my name displays!
+Hey hey!! I'm Erynn/June **(real names, use with caution)** but you can always call me what my name displays!
 
-Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that
+Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that so just expect my whole github to just be pt related
 
 Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you can always hang out with me and @MrHappyNSad :)
 
@@ -11,19 +11,21 @@ Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=30% height=30%>
 </p>
-  Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons AND OF COURSE I PHOTOSHOPPED FORKSTOE INTO THE SCREENSHOT BECAUSE PEOPLE BELIEVE I AM FORKSTOE)
+  Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons AND OF COURSE I PHOTOSHOPPED FORKSTOE'S TWITTER INTO THE SCREENSHOT BECAUSE PEOPLE BELIEVE I AM FORKSTOE)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
 
-#### Regretevator area
-I mostly sit outside of the bakery with @MrHappyNSad, and in most cases you can see me in or somewhere surrounding the bush in this area. 
+#### Outside the bakery (and inside too)
+I mostly sit outside of the bakery with and in most cases you can see me in or somewhere surrounding the bush in this area. 
 
-If he's offline then I just stay in the bush and vice versa but if he's online than I just sit near the bush heh
+Sometimes we like to collect messages from other people who is unaware that they're in the safe server. If they say it we repeat it. **But we mean no harm in a bad way tho and you can read more in the quotes hall of fame**
 
-We're there because we're trying to give out a 'be careful what you say' look and be the most hated players
+We're there when we're trying to give out a 'be careful what you say' look and be the most hated players
 
 The reason why we're there is because it is highly populated which is a hotspot for us to collect chats from players that do some pretty sus things in the SAFE SERVER (but of course we don't only collect in that area)
+
+(jk the actual reason why i started being there is because i found a few lostwave fans there and then I met @MrHappyNSad and then we started being there everyday then there was weezer then there was our quoting era)
 
 #### OSC area
 I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORKSTOE PERSON from the osc area stop asking :(
@@ -35,11 +37,13 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 ### Pony Town quotes Hall-of-Fame (My picks)
 **First of all, we don't do this for fun**<br>
-**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to shut up and kill myself many times when I didn't do anything**<br>
+**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to shut up and kill myself many times on a PG server when I didn't do anything and I always felt better when I remember that I am liked by people**<br>
 
-If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or whatever haha)
+If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or your parents whatever haha)
 
 (Don't be scared to contact me, I won't directly bring it up and make fun of whenever I see you again)
+
+_Of course, we mean no harm here and you can always read the above_
 
 ```text
 01:37 AM[papa smurf] im gonna pee on ur welcome rugs
