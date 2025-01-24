@@ -3,7 +3,7 @@
 
 Hey hey!! I'm Erynn/June **(real names, use with caution)** but you can always call me what my name displays!
 
-Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that so just expect my whole github to just be pt related until this fills up with _serious game development haha_
+Unlike other most Pony Town players who use github for their accounts, I actually want to plan a very awesome game but I suck at coding and I'm only good with Scratch and all that so just expect my whole github to just be pt related until this fills up with _serious game development_
 
 Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you can always hang out with me and @MrHappyNSad :)
 
@@ -19,8 +19,6 @@ Oh yeah im a big lostwave enthusiast. If you love lostwave and play pt then you 
 
 #### Outside the bakery (and inside too)
 I mostly sit outside of the bakery and in most cases you can see me in or somewhere surrounding the bush in this area. 
-
-Sometimes we like to collect messages from other people who is unaware that they're in the safe server. If they say it we repeat it. **But we mean no harm in a bad way tho and you can read more in the quotes hall of fame**
 
 We're there when we're trying to give out a 'be careful what you say' look and be the most hated players
 
@@ -45,9 +43,11 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum 
 
-If you're contained in this list or know someone in this list you can always contact me to remove it.
+Sometimes we like to collect messages from people who are unaware that they're in the safe server. If they say it we repeat it. **BUT WE HAVE COMMON SENSE AND DO NOT RANDOMLY SAY SOMEONE'S MESSAGE.**
 
-(Don't be scared to contact me, even though sometimes we severely 'abuse' the quote, we actually don't laugh and our quoting is purely judgement-free)
+If you're contained in this list or know someone in this list that you wanted to be removed then you can always contact me to remove it.
+
+(Don't be scared to contact me, we actually don't laugh and our quoting is purely judgement-free)
 
 _Of course, we mean no harm here and you can always read the texts above_
 
