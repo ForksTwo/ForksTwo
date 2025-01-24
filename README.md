@@ -45,6 +45,8 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum 
 
+If you're also a silly goose and like to quote people too then we made this area outside the bakery where you can find the main bush we call the **QUOTING BUSH**!! @MrHappyNSad mostly resides in that bush and like what I said before I sometimes sit near it and we do little roleplays around it haha
+
 If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or your parents whatever haha)
 
 (Don't be scared to contact me, our quoting is purely judgement-free)
