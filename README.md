@@ -37,7 +37,7 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 **First of all, we don't do this for fun**<br>
 **We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to shut up and kill myself many times when I didn't do anything**<br>
 
-If you're contained in this list and know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course 
+If you're contained in this list or know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course (we're not like mods or whatever haha)
 
 (Don't be scared to contact me, I won't directly bring it up and make fun of whenever I see you again)
 
