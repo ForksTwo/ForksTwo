@@ -21,7 +21,7 @@ I mostly sit outside of the bakery with @MrHappyNSad, and in most cases you can 
 
 If he's offline then I just stay in the bush and vice versa but if he's online than I just sit near the bush heh
 
-We're there because we're trying to give out a 'be careful what you say' look and be the most feared players
+We're there because we're trying to give out a 'be careful what you say' look and be the most hated players
 
 The reason why we're there is because it is highly populated which is a hotspot for us to collect chats from players that do some pretty sus things in the SAFE SERVER (but of course we don't only collect in that area)
 
@@ -31,10 +31,16 @@ I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORK
 But the reason why I marked it on the map and put a section here is because people think I am and I actually like that people think I'm someone else
 
 #### Docks
-I'm not usually there but I am there when I want a big crowd.
+I'm not usually there but I am there when I want a big crowd or somewhere to join in.
 
 ### Pony Town quotes Hall-of-Fame (My picks)
-If one of the people in these quotes is you then contact me to remove it and start saying this stuff in your private chat or never try to say it at all... but only if we're around of course haha
+**First of all, we don't do this for fun**<br>
+**We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to shut up and kill myself many times when I didn't do anything**<br>
+
+If you're contained in this list and know someone in this list you can always contact me to remove it and start saying these types of stuff in your private chat or never try to say it at all... but only if we're around of course 
+
+(Don't be scared to contact me, I won't directly bring it up and make fun of whenever I see you again)
+
 ```text
 01:37 AM[papa smurf] im gonna pee on ur welcome rugs
 
