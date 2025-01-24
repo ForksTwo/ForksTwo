@@ -18,11 +18,16 @@ If you see me in the OSC area, you might not determine that it wouldn't be me, p
 (idk who forkstoe is so you might wanna ask it /srs)
 
 #### Pony Town quotes Hall-of-Fame
-If one of the people in these quotes is you then contact me to remove it and start saying this stuff in your private chat or never try to say it at all.
+If one of the people in these quotes is you then contact me to remove it and start saying this stuff in your private chat or never try to say it at all... but only if we're around of course haha
+
 > 01:37 AM[papa smurf] im gonna pee on ur welcome rugs
+
 > 10:15 AM[{~*Beanz*~}] Peppa pig tripped on a wire fell into a fire *BEACON STRIPS*
+
 > 05:18 PM[me] thinks: forkstoe bouta be forkstowed away and sent to korea
+
 > 07:50 AM[To #2] BRO WHO IS FORKSTOE AND WHY DO I KEEP SEEING IT EVERYWHERE IS THST THE OC OF THST ONE FORKSTOE DEVIANTART PERSON
+
 > 06:46 PM[lorax claus !] whispers: is that a 4 2 x lovechild
 
 <!--
