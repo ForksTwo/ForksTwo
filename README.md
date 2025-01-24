@@ -24,7 +24,7 @@ We're there because we're trying to give out a 'be careful what you say' look an
 #### OSC area
 I dunno where these are assumptions are coming from, I AM ACTUALLY NOT THAT FORKSTOE PERSON from the osc area stop asking :(
 
-But the reason why I marked it on the map and put a section here is because people think I do and I'm trying to fool them heh
+But the reason why I marked it on the map and put a section here is because people think I am and I actually like that people think I'm someone else
 
 #### Docks
 I'm not usually there but I am there when I want a big crowd.
