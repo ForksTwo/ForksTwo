@@ -3,7 +3,7 @@
 Hey hey!!
 
 You can find me on the following marked plots on the Pony Town safe server map:
-<img src="(https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
+<img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=50% height=50%>
 
 I mostly sit outside of the bakery with my friend, and in most cases you can see me in or somewhere surrounding the bush in this area. There's actually a reason for this and you should not do something sus out there with me around.
 Basically, the reason why I'm mostly somewhere near the bush is because we are here to collect chats from other players and copy/pasting them onto a Google doc that me and my friend made... hehe
