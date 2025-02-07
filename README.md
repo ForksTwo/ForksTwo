@@ -42,8 +42,8 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 **If you're just pissed by our quotes and think we're "spamming" then just block and hide us.**
 
 If you want to be whitelisted from being quoted from us then perform the following steps:
-1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past
-2. You get whitelisted from being quoted good job
+1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past (in public chat where me or when @MrHappyNSad is around of course)
+2. You get whitelisted from being quoted good job (it expires in 7 days tho so you might have to renew that by repeating the steps
 
 Here are a few reasons why we quote (useless but whatever)
 * In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them (I was a victim of their quoting once which inspired me to become the quoter outside of the bakery)
