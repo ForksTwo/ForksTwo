@@ -41,9 +41,12 @@ I'm not usually there but I am there when I want a big crowd or somewhere to joi
 
 **If you're just pissed by our quotes and think we're "spamming" then just block and hide us.**
 
-I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum 
+I know I'm sounding like some pt mod wannabe but this is what the game has always been and I know our quoting won't do much. Plus I'm still under the age of the pt moderator minimum
 
-Sometimes we like to collect messages from people who are unaware that they're in the safe server. If they say it we repeat it. **BUT WE HAVE COMMON SENSE AND DO NOT RANDOMLY SAY SOMEONE'S MESSAGE. GET THAT CLEAR AND DO NOT SPREAD MISINFORMATION ABOUT US.**
+Here are a few reasons why we quote (useless but whatever)
+* In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them (I was a victim of their quoting once which inspired me to become the quoter outside of the bakery)
+* Two players that forever gave me online trauma. However I will not explain who they were and I want none of this to be immediately brought up to me unless I do
+* There are some cases when someone looks at a random player and then a moment later that random player becomes famous in pt (which kinda happened to me) so just in case someone gets popular I'll remind players what they used to be
 
 If you're contained in this list or know someone in this list that you wanted to be removed then you can always contact me to remove it.
 
