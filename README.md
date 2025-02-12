@@ -1,7 +1,7 @@
 ## Welcome to my GitHub!!
 ### (if you visited because i quoted something in chat it is recommended that you read the end of the page)
 
-idk
+idk what to write here help
 
 ### Where to find me in Pony Town!!!! :D
   You can find me on the following marked plots on the Pony Town safe server map:
@@ -39,11 +39,11 @@ If you're upset that I ust put many disclaimers here then you should take the bl
 
 **If you're just pissed by our quotes and think we're "spamming" then just block and hide us.**
 
-## If you want to be whitelisted from being quoted from us then here are two ways to keep yourself safe:
-### Option One
+#### If you want to be whitelisted from being quoted from us then here are two ways to keep yourself safe:
+##### Option One
 1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past (in public chat where me or when @MrHappyNSad is around of course)
 2. You get whitelisted from being quoted good job (expires in 1 week so youre gonna have to renew it everytime we're here
-### Option Two
+##### Option Two
 Exchange quotes with us. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and we'll give you more quotes back
 Thats literally the purpose is to be careful what you say
 
