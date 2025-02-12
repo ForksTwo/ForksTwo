@@ -33,7 +33,7 @@ I'm not usually there but I am there when I want a big crowd, showing off my ski
 ### Pony Town quotes Hall-of-Fame (My picks)
 #### MASSIVE WARNING FOR THE OVERTHINKERS
 The only reason why I have to put a lot of paragraphs here making a disclaimer about the quoting is because people just overreact<br>
-If you're upset that I ust put many disclaimers here then you should take the blame on those people<br>
+If you're upset that I just put many disclaimers here then you should take the blame on those people<br>
 **First of all, depending on our moods we or we don't do this for fun**<br>
 **We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I've always felt better when I remember that there's so many people that still care for me**<br>
 
@@ -44,8 +44,8 @@ If you're upset that I ust put many disclaimers here then you should take the bl
 1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past (in public chat where me or when @MrHappyNSad is around of course)
 2. You get whitelisted from being quoted good job (expires in 1 week so youre gonna have to renew it everytime we're here
 ##### Option Two
-Exchange quotes with us. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and we'll give you more quotes back
-Thats literally the purpose is to be careful what you say
+Exchange quotes with us. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and we'll give you more quotes back<br>
+Thats literally the purpose is to be careful what you say because we also bust players
 
 **Here are a few reasons why we quote (useless but whatever)**
 * In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them (I was a victim of their quoting once which inspired me to become the quoter outside of the bakery)
