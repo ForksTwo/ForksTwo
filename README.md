@@ -32,8 +32,8 @@ I'm not usually there but I am there when I want a big crowd, showing off my ski
 
 ### Pony Town quotes Hall-of-Fame (My picks)
 #### MASSIVE WARNING FOR THE OVERTHINKERS
-The only reason why I have to put a lot of paragraphs here making a disclaimer about the quoting is because people just overreact 
-If you're upset that I ust put many disclaimers here then you should take the blame on those people
+The only reason why I have to put a lot of paragraphs here making a disclaimer about the quoting is because people just overreact<br>
+If you're upset that I ust put many disclaimers here then you should take the blame on those people<br>
 **First of all, depending on our moods we or we don't do this for fun**<br>
 **We do this because I'm a little concerned that the devs aren't taking their GOOD players seriously, and pt is full of toxic players. I've been told to _shut up_ and _kill myself_ many times on a PG server when I didn't do anything and I've always felt better when I remember that there's so many people that still care for me**<br>
 
