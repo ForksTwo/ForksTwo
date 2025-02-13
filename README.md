@@ -6,7 +6,7 @@ idk what to write here help
 ### Where to find me in Pony Town!!!! :D
   You can find me on the following marked plots on the Pony Town safe server map:
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/4b80ece0-b8fe-4ba2-9a09-507f6d6c627e" width=30% height=30%>
+  <img src="https://raw.githubusercontent.com/ForksTwo/ForksTwo/refs/heads/main/Untitled%20design%20(6).png" width=30% height=30%>
 </p>
   Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons AND OF COURSE I PHOTOSHOPPED FORKSTOE'S TWITTER INTO THE SCREENSHOT BECAUSE PEOPLE BELIEVE I AM FORKSTOE)
 <p align="center">
