@@ -14,7 +14,8 @@ idk what to write here help
 </p>
 
 #### Outside the bakery (and inside too)
-I mostly sit outside of the bakery and in most cases you can see me in or somewhere surrounding the bush in this area. 
+I mostly sit outside of the bakery and in most cases you can see me in or somewhere surrounding the bush in this area.<br>
+IF there is no bush and an event is going on we're also most likely where the bush was
 
 We're there when we're trying to give out a 'be careful what you say' look and be the most feared players... like im expecting someone one day to be like 'DONT SAY ANYTHING NEXT TO THE BUSH THEYRE GONNA COPY AND PASTE YOUR CHAT AND KEEP IT AND TORTURE YOU EVERYTIME YOURE HERE' or smething
 
@@ -57,6 +58,8 @@ If you're contained in this list or know someone in this list that you want to b
 (Don't be scared to contact me, we actually don't laugh and our quoting is purely judgement-free)
 
 _Of course, we mean no harm here and you can always read the texts above_
+
+The time here is New Zealand Daylight Time btw (GMT+13) so if you want to use it you can convert it to yours ^^
 
 ```text
 01:37 AM[papa smurf] im gonna pee on ur welcome rugs
