@@ -45,7 +45,7 @@ If you're upset that I just put many disclaimers here then you should take the b
 1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past (in public chat where me or when @MrHappyNSad is around of course)
 2. You get whitelisted from being quoted good job (expires in 1 week so youre gonna have to renew it everytime we're here
 ##### Option Two
-Exchange quotes with us. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and we'll give you more quotes back<br>
+GIVE US YOUR QUOTES. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and you'll be whitelisted no matter what<br>
 Thats literally the purpose is to be careful what you say because we also bust players
 
 **Here are a few reasons why we quote (useless but whatever)**
