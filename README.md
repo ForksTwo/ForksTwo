@@ -49,7 +49,7 @@ GIVE US YOUR QUOTES. If you have a few quotes that you've never used in front of
 Thats literally the purpose is to be careful what you say because we also bust players
 
 **Here are a few reasons why we quote (useless but whatever)**
-* In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them (I was a victim of their quoting once which inspired me to become the quoter outside of the bakery)
+* In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them _(theyre green name with me dont mess with them)_
 * Two players that forever gave me online trauma. However I will not explain who they were and I want none of this to be immediately brought up to me unless I do
 * There are some cases when someone looks at a random player and then a moment later that random player becomes famous in pt (which kinda happened to me) so just in case someone gets popular I'll remind players what they used to be
 
