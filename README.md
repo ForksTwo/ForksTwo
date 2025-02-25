@@ -40,13 +40,15 @@ If you're upset that I just put many disclaimers here then you should take the b
 
 **If you're just pissed by our quotes and think we're "spamming" then just block and hide us.**
 
-#### If you want to be whitelisted from being quoted from us then here are two ways to keep yourself safe:
+#### If you want to be whitelisted from being quoted from us then here are three ways to keep yourself safe:
 ##### Option One
 1. If you think you've said something wrong then quote yourself and say to yourself what things you've remembered saying in the past (in public chat where me or when @MrHappyNSad is around of course)
 2. You get whitelisted from being quoted good job (expires in 1 week so youre gonna have to renew it everytime we're here
 ##### Option Two
 GIVE US YOUR QUOTES. If you have a few quotes that you've never used in front of us before then you can gladly give us one of your quotes and you'll be whitelisted no matter what<br>
 Thats literally the purpose is to be careful what you say because we also bust players
+##### Option three
+listen to a lostwave song (except ulterior motives I HATE THAT SONG SO MUCH) and tell us about it and you'll be safe :)
 
 **Here are a few reasons why we quote (useless but whatever)**
 * In the OSC area there is someone in the main bush who mostly sits there everyday looking like they're doing nothing. But what they do is they eavesdrop on almost the entire area and copy paste them to quote them _(theyre green name with me dont mess with them)_
