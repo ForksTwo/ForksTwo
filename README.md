@@ -1,3 +1,4 @@
+# IM CRYING WHATS WITH YALL SENDING ME SKIBIDI ZOOPERDOOPERS AND FILIPINO PROFANITY 
 ## Welcome to my GitHub!!
 ### (if you visited because i quoted something in chat it is recommended that you read the end of the page)
 
