@@ -1,5 +1,4 @@
-# IM CRYING WHATS WITH YALL SENDING ME SKIBIDI ZOOPERDOOPERS AND FILIPINO PROFANITY 
-## im gonna rewrite this there is no way
+## how did you guys tolerate me back then i was so cringy i need to rewrite my readme omg
 idk what to write here help
 
 ### Where to find me in Pony Town!!!! :D
@@ -7,15 +6,14 @@ idk what to write here help
 <p align="center">
   <img src="https://raw.githubusercontent.com/ForksTwo/ForksTwo/refs/heads/main/Untitled%20design%20(6).png" width=30% height=30%>
 </p>
+(i actually rarely go to the docks at all so im mostly at the osc area or outside of the bakery)
   Here are my socials! (Of course you might find my Google with my real name but that's for personal reasons AND OF COURSE I PHOTOSHOPPED FORKSTOE'S TWITTER INTO THE SCREENSHOT BECAUSE PEOPLE BELIEVE I AM FORKSTOE)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7e78f666-1da4-4f88-b68e-9919d07b8613">
 </p>
 
-IM CRYING I NEED TO REWRITE THIS
-
 ### Pony Town quotes Hall-of-Fame (My picks)
-##### go on the google doc link or my straw to witness full destruction
+#### go on the google doc link or my straw to witness the full destruction of quotes
 
 ```text
 01:37 AM[papa smurf] im gonna pee on ur welcome rugs
