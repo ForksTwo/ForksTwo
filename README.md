@@ -1,4 +1,4 @@
-## EW IM REWRITING MY README I HATE THIS
+## I wanna rewrite my readme im so cringe
 
 ### Pony Town quotes Hall-of-Fame (My picks)
 #### go on the google doc link or my straw to witness the full destruction of quotes
