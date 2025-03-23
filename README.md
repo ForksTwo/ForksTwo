@@ -1,5 +1,5 @@
 ## I wanna rewrite my readme im so cringe
-
+## to th people who are watching me: WHY
 ### Pony Town quotes Hall-of-Fame (My picks)
 #### go on the google doc link or my straw to witness the full destruction of quotes
 
